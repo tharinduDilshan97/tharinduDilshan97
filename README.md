@@ -22,7 +22,7 @@ and performance optimization**. I focus on writing clean, maintainable code and 
 features that directly improve business efficiency.
 
 📫 **Contact:** tharindudilshands09@gmail.com  
-🔗 **LinkedIn:** [tharindu-dilshan-samarakoon-43a3a121a](https://www.linkedin.com/in/tharindu-dilshan-samarakoon-43a3a121a/)
+🔗 **LinkedIn:** [tharindu-dilshan-samarakoon](https://www.linkedin.com/in/tharindu-dilshan-samarakoon-43a3a121a/)
 
 ---
 
